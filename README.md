@@ -1,2 +1,3 @@
 # Pecadoras
-Mod by CollegeNollegeYT.
+Brazil if it was monochrome. <br>
+*Mod by CollegeNollegeYT*
